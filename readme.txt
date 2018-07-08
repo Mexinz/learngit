@@ -1,2 +1,2 @@
 Hello my coding life emmm！
-Running towards the man.
+Running towards the awesome man .
